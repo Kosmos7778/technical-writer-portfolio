@@ -5,7 +5,7 @@ Senior Technical Writer · Docs as Code · API & Enterprise Documentation
 **Кандидат технических наук** · 13+ лет в документации
 
 📍 Ульяновск · готов к удалённой работе (Россия) · иногда командировки
-📧 oleg_perflliev@mail.ru · Telegram: [@pobeda_778](https://t.me/pobeda_778)
+📧 oleg_perfiliev@mail.ru · Telegram: [@pobeda_778](https://t.me/pobeda_778)
 
 
 ## 📊 Портфолио в цифрах
